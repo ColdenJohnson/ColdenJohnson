@@ -1,4 +1,4 @@
-## Hi - check out what I've been working on!
+## Hello - check out what I've been working on!
 
 [LinkedIn](https://www.linkedin.com/in/colden-johnson/)
 

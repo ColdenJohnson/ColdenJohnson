@@ -1,1 +1,1 @@
-I code a little sometimes.
+We do a bit of coding.
